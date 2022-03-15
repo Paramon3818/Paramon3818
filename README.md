@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Paramon3818
+- 👀 I’m interested in programming and doing different projects.
+- 🌱 I’m currently learning Python
+- 📫 How to reach me https://vk.com/paramon3818
